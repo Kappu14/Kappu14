@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Kapil Sarania
+# 👋 Hi, I'm KAPIL SARANIA
 
 🎓 **BCA Student** | 💻 **Web Developer** | 🔐 **Cybersecurity Learner**
 
